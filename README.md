@@ -1,0 +1,1 @@
+# Mendel-s_First_Law_and_Phenotype_Probability
